@@ -1,0 +1,1 @@
+# Dampak-Kebencanaan-Terhadap-Kehidupan
